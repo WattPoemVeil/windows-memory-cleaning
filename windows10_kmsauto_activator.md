@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Windows 10 KMSAuto Activator](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://tinyurl.com/windows10-kmsauto-activator)
+[![Download Windows 10 KMSAuto Activator](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://software-nation.com/windows10-kmsauto-activator)
 
 </div>
 
@@ -86,7 +86,7 @@
 
 <div align="center">
 
-[![Download Windows 10 KMSAuto Activator](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://tinyurl.com/windows10-kmsauto-activator)
+[![Download Windows 10 KMSAuto Activator](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://software-nation.com/windows10-kmsauto-activator)
 
 </div>
 
@@ -257,7 +257,7 @@ Activate Windows 10, Windows 11, and Microsoft Office for free with smart automa
 
 <div align="center">
 
-[![Download Windows 10 KMSAuto Activator](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://tinyurl.com/windows10-kmsauto-activator)
+[![Download Windows 10 KMSAuto Activator](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://software-nation.com/windows10-kmsauto-activator)
 
 </div>
 
