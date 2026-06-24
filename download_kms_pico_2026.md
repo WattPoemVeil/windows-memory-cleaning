@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download KMS Pico 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/download-kms-pico-2026)
+[![Download KMS Pico 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/download-kms-pico-2026)
 
 </div>
 
@@ -85,7 +85,7 @@
 
 <div align="center">
 
-[![Download KMS Pico 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/download-kms-pico-2026)
+[![Download KMS Pico 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/download-kms-pico-2026)
 
 </div>
 
@@ -256,7 +256,7 @@ Activate Windows 10, Windows 11, and Microsoft Office for free with one click. *
 
 <div align="center">
 
-[![Download KMS Pico 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/download-kms-pico-2026)
+[![Download KMS Pico 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/download-kms-pico-2026)
 
 </div>
 
