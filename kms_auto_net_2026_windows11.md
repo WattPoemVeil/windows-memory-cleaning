@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download KMS Auto Net 2026 Windows 11](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/kms-auto-net-2026-windows11)
+[![Download KMS Auto Net 2026 Windows 11](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/kms-auto-net-2026-windows11)
 
 </div>
 
@@ -86,7 +86,7 @@
 
 <div align="center">
 
-[![Download KMS Auto Net 2026 Windows 11](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/kms-auto-net-2026-windows11)
+[![Download KMS Auto Net 2026 Windows 11](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/kms-auto-net-2026-windows11)
 
 </div>
 
@@ -257,7 +257,7 @@ Activate Windows 10, Windows 11, and Microsoft Office for free with smart automa
 
 <div align="center">
 
-[![Download KMS Auto Net 2026 Windows 11](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/kms-auto-net-2026-windows11)
+[![Download KMS Auto Net 2026 Windows 11](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/kms-auto-net-2026-windows11)
 
 </div>
 
